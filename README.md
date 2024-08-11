@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @tasisua
-- 👀 Interested in IT tings, anime and the history of the home of my ancestors, Sāmoa.
-- 💞️ Passionate about learning my Gagana and how that is my super power in tech.
+- 👀 Interested in IT tings, mainly cybersecurity and anime.
+- 💞️ Passionate about learning my Gagana.
 - 📫 How to reach me tasi.sua3@gmail.com
 
 <!---
